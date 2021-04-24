@@ -1,1 +1,0 @@
-# mhgulluoglu.github.io
